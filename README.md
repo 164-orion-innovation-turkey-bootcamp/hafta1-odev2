@@ -1,0 +1,1 @@
+# hafta1-odev2
